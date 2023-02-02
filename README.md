@@ -1,1 +1,0 @@
-# davegoldhammer-photo-album
